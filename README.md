@@ -1,4 +1,4 @@
-🚨 I’m currently working on cloud based safty services @ Bosch
+🚨 I’m currently working on cloud based safety services @ Bosch
 
 💬 Ask me about, whatever you want.
 
