@@ -1,4 +1,4 @@
-🚨 I’m currently working @BoschGlobal
+🚨 I’m currently working @aws
 
 💬 Ask me about, whatever you want.
 
