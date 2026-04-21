@@ -4,5 +4,5 @@
 
 📫 How to reach me: 
  
-* mail@bernhardrode.de
+* ebbo@rode.io
 * https://twitter.com/ebbo
