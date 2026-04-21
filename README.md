@@ -5,4 +5,4 @@
 📫 How to reach me: 
  
 * ebbo@rode.io
-* https://twitter.com/ebbo
+* https://x.com/ebbo
